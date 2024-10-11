@@ -1,2 +1,1 @@
 ![What](https://cdn.discordapp.com/attachments/815718848153387071/1294271720626196564/Snaptik.app_7424307744418630920-ezgif.com-video-to-gif-converter.gif?ex=670a67f8&is=67091678&hm=6ac9cd7603a94ae90d6f1ae1735eada3568eee020307d93a002067efbf6d70c4&)
-![Woah](https://cdn.discordapp.com/attachments/815718848153387071/1294273776405712916/ohmyogd.gif?ex=670a69e2&is=67091862&hm=c06ff1d2efa4098bcd836f9090cc82b5f9cad8a33927fb5a4ffb517cfbb43557&)
